@@ -1,6 +1,18 @@
-# Banday family of Kalamula, Azad Jammu & Kashmir
+# History of Banday Family
 
-## Background
+The mosque contains strands of Muhammad's hair, often referred to as **"the relic of Hazratbal shrine"** or simply, "the relic". The relic was first brought to Kashmir by Syed Abdullah, a purported descendant of Muhammad who left Medina and settled in Bijapur, near Hyderabad in 1635.
+
+When Syed Abdullah died, his son Syed Hamid inherited the relic. Following the Mughal conquest of the region, Syed Hamid was stripped of his family estates. Finding himself unable to care for the relic, he sold it to a wealthy Kashmiri businessman Khwaja Nur-ud-Din Eshai.
+
+However, when the Mughal Emperor Aurangzeb came to know of what had transpired, he had the relic seized and sent to the shrine of Khwaja Moinuddin Chishti at Ajmer, and had Khwaja Nur-ud-Din Eshai imprisoned in Delhi for possessing the relic. Later, realizing his mistake, Aurangzeb decided to restore the relic to Khwaja Nur-ud-Din Eshai and to allow him to take it to Kashmir. However, Khwaja Nur-ud-Din Eshai had already died in imprisonment. In 1700, the relic finally reached Kashmir, along with the body of Khwaja Nur-ud-Din Eshai. There, Inayat Begum, daughter of Khwaja Nur-ud-Din Eshai, became a custodian of the relic and established the shrine. Since then, her male descendants have been caretakers of the relic.
+
+
+Dr Manzoor Banday, Head Cleric of Hazratbal Shrine displaying the holy relic on the occasion of Eid e Milad un Nabi, the birthday of Prophet Muhammad.
+Her male descendants belong to what is known as the **Banday family**.
+
+## Banday family of Kalamula, Azad Jammu & Kashmir
+
+### Background
 
 Banday family is a Kashmiri ethinic family, according to lineage **Srinagar(capital of currently Indian Occupied Kashmir)** is the ancestral home of the family. It is well known that most of the Banday family members were involved in trade & business. Dargah-Hazrat Bal (Srinagar) is the are where Banday family was residing in. Some members of the family migrated to **Khanpora (currently Badgam district in IOK)** and then to **Nambla (URI in IOK)**.
 
