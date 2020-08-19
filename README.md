@@ -30,7 +30,9 @@ The total distance between Nambla and Kalamula is approximately 16 KM and 20KM f
 ### References
 
 [JK Tourisim](http://www.jktourism.jk.gov.in/List/ListDetails.aspx?52734E46697354352F5A43466636687234686936586433494E5A66586B376F4C356E5931746C47445051593D) 
+
 [Srinagar Muncipal Corporation](https://www.smcsite.org/index.php?link=Hazratbal) 
+
 [Azad Jammu & kashmir Government](https://web.archive.org/web/20140408214622/http://ajk.gov.pk/index.php?option=com_content&view=article&id=178&Itemid=50
 ) 
 
