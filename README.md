@@ -29,7 +29,6 @@ The family migrated from Srinagar Hazratbal area to Nambla URI. From there eithe
 
 https://www.google.com/maps/d/edit?mid=1sQNN3ijQYa9nrVI8trCm9H047qV8P7YH&usp=sharing
 
-
 ### References
 
 [JK Tourisim](http://www.jktourism.jk.gov.in/List/ListDetails.aspx?52734E46697354352F5A43466636687234686936586433494E5A66586B376F4C356E5931746C47445051593D) 
