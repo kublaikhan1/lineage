@@ -25,7 +25,7 @@ The total distance between Nambla and Kalamula is approximately 16 KM and 20KM f
 
 ## Migration of the Banday family
 
-The family migrated from Srinagar Hazratbal area to Nambla URI. From there either via Hajipeer pass or via Bedori the family migrated to Kalamula in current day Azad Kashmir. From there majority of family members migrated to Kahuta capital of current day Haveli District, then under the Dogra rule a Jageer of Poonch. Alot of family members also migrated to Muzaffarabad. 
+The family migrated from Srinagar Hazratbal area to Nambla URI. From there either via Hajipeer pass or via Bedori the family migrated to Kalamula in current day Azad Kashmir. From there majority of family members migrated to Kahuta capital of current day Haveli District, then under the Dogra rule a Jageer of Poonch. Alot of family members also migrated to Muzaffarabad. Only one decendent of the family has yet completely setteled outside of Kashmir, the rest of the family members mostly are current day residents of some town/city in kashmir while others temporarily reside all over Kashmir, Pakistan and all over the world. 
 
 ![alt text](https://github.com/hamadkh/lineage/blob/master/migration.png)
 
