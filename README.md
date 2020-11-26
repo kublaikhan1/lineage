@@ -25,11 +25,25 @@ The total distance between Nambla and Kalamula is approximately 16 KM and 20KM f
 
 ## Migration of the Banday family
 
-The family migrated from Srinagar Hazratbal area to Nambla URI. From there either via Hajipeer pass or via Bedori the family migrated to Kalamula in current day Azad Kashmir. From there majority of family members migrated to Kahuta capital of current day Haveli District, then under the Dogra rule a Jageer of Poonch. Alot of family members also migrated to Muzaffarabad. Only one decendent of the family has yet completely setteled outside of Kashmir, the rest of the family members mostly are current day residents of some town/city in kashmir while others temporarily reside all over Kashmir, Pakistan and all over the world. 
+The family migrated from Srinagar Hazratbal area to Nambla URI. (From there either via Hajipeer pass or via Bedori)** the family migrated to Kalamula in current day Azad Kashmir. From there majority of family members migrated to Kahuta capital of current day Haveli District, then under the Dogra rule a Jageer of Poonch. Alot of family members also migrated to Muzaffarabad. Now family is settled in different parts of AJK and Pakistan including Kalamula,Farward Kahuta,Muzaffarabad and Rawalpindi/Islamabad etc.
 
 ![alt text](https://github.com/hamadkh/lineage/blob/master/migration.png)
 
 https://www.google.com/maps/d/edit?mid=1sQNN3ijQYa9nrVI8trCm9H047qV8P7YH&usp=sharing
+
+
+## Well Known Family members 
+
+Khawaja Sanaullah Banday (Late Headmaster Kalamula boys High School)
+Khawaja Habib-ul-Allah Banday(Late revenue officer)
+Khawaja Abdul Khaliq Banday(Ex Assistant Commissioner)
+Khawaja Muhammad Naseem(Chairman Service Tribunal)
+Khawaja Muhammad Mateen (Retired Head Master)
+Rizwan Banday(Late Income tax officer Mirpur)
+Professor Dr. Khawaja Muhammad Basharat(Director Geology Department AJK University)
+Zafar Iqbal Banday(Lecturer at Govt college Mirpur)
+Khawaja Azhar Mateen(Software Engr AJK university)
+
 
 ### References
 
