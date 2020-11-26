@@ -13,7 +13,7 @@ However, when the Mughal Emperor Aurangzeb came to know of what had transpired, 
 
 ### Background
 
-Banday family from Kalamula is a Kashmiri ethinic family, according to lineage **Srinagar(capital of currently Indian Occupied Kashmir)** is the ancestral home of the family. It is well known that most of the Banday family members were involved in trade & business. Dargah-Hazrat Bal (Srinagar) is the are where Banday family was residing in. Some members of the family migrated to **Khanpora (currently Badgam district in IOK)** and then to **Nambla (URI in IOK)**.
+Banday family from Kalamula is a Kashmiri ethinic family, according to lineage **Srinagar(capital of currently Indian Occupied Kashmir)** is the ancestral home of the family. It is well known that most of the Banday family members were involved in trade & business. Dargah-Hazrat Bal (Srinagar) is the area where Banday family was residing in. Some members of the family migrated to **Khanpora (currently Badgam district in IOK)** and then to **Nambla (URI in IOK)**.
 
 One of the family chiefs who migrated was name **Pir Joo (Joo is respectable title given among Kashmiris)**. Pir Joo's decendants were **Khalil Joo** and **Ahmad Joo** who became residents of Nambla.
 
