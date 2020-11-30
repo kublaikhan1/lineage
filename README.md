@@ -35,13 +35,21 @@ https://www.google.com/maps/d/edit?mid=1sQNN3ijQYa9nrVI8trCm9H047qV8P7YH&usp=sha
 ## Well Known Family members 
 
 Khawaja Sanaullah Banday (Late Headmaster Kalamula boys High School)
+
 Khawaja Habib-ul-Allah Banday(Late revenue officer)
+
 Khawaja Abdul Khaliq Banday(Ex Assistant Commissioner)
+
 Khawaja Muhammad Naseem(Chairman Service Tribunal)
+
 Khawaja Muhammad Mateen (Retired Head Master)
+
 Rizwan Banday(Late Income tax officer Mirpur)
+
 Professor Dr. Khawaja Muhammad Basharat(Director Geology Department AJK University)
+
 Zafar Iqbal Banday(Lecturer at Govt college Mirpur)
+
 Khawaja Azhar Mateen(Software Engr AJK university)
 
 
