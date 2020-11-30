@@ -51,7 +51,6 @@ Khawaja Azhar Mateen(Software Engr AJK university)
 
 # Family Tree
 
-https://www.familyecho.com/?p=START&c=7in6b14eob&f=923013431249113170
 
 
 ### References
